@@ -10,7 +10,7 @@
 - i am not making resume for my future job you retarded donkey i am just away from my bullshit routin and writhing every think coming in my damaged mind
 - i am a successfull failing machine (they dont code me with python idiot)
 - and one my favourite activity is clicking cringe button and making fool of poeple 
-- btw i asumme that you already knew that i love writing bullshit more than codes in ide 
+- btw i asumme that you already knew that i love writing bullshit more than coding !
 - 
 - 
 - 
